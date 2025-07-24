@@ -1,1 +1,1 @@
-i jusr started learning how to press buttons right here :D
+i just started learning how to press buttons right here :D
